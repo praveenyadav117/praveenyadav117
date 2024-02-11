@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **praveenkumar.nitb11@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OCEiOqSJZRBtmJ1C6ofYEV9rFQbfPvd8/view?usp=sharing](https://drive.google.com/file/d/1OCEiOqSJZRBtmJ1C6ofYEV9rFQbfPvd8/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1OCEiOqSJZRBtmJ1C6ofYEV9rFQbfPvd8/view?usp=sharing](https://drive.google.com/file/d/1OCEiOqSJZRBtmJ1C6ofYEV9rFQbfPvd8/view?usp=sharing](https://drive.google.com/file/d/15OFO1C6vmOk2F8pe2Uqeab_qxKbBsg5k/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
